@@ -368,7 +368,7 @@ Pastimes/
 
 ---
 
-## Author
+## Video Description 
 
 (https://youtu.be/rpA5Pd_pc-Q?si=LdGnWWLR_O5S-dbq)
 
